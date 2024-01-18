@@ -2,7 +2,7 @@
 - 👀 I’m interested in GENERATIONAL WEALTHERAT
 - 🌱 I’m currently learning EVERYTHING EDUCATIONAL
 - 💞️ I’m looking to collaborate on GETTING RICH
-- 📫 How to reach me @jUKIE_BUTT
+- 📫 How to reach me @JUKIE_BUTT
 - 😄 Pronouns: ME
 - ⚡ Fun fact: I'M FUN
 
